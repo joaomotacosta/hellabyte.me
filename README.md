@@ -76,5 +76,3 @@ Join our community of gamers today and unlock the world of Pokémon Go like neve
 Pokémon GO is a registered trademark of Niantic, Inc. This service is not affiliated with or endorsed by Niantic, Inc. Pokémon and Pokémon character names are trademarks of Nintendo and The Pokémon Company. We do not condone or promote cheating in any form and encourage fair play within the game's terms of service.
 
 Please note that our devices are intended for legitimate use in accordance with the terms and conditions set forth by Pokémon Go, and it is the responsibility of the user to comply with these terms. We are not responsible for any consequences or actions taken by Niantic, Inc., The Pokémon Company, or other relevant parties due to the use of our pre-rooted devices. By purchasing our products and services, you agree to use them responsibly and within the bounds of applicable laws and regulations.
-
-# Hellabyte.me - Mastering the Art of Digital Exploration
