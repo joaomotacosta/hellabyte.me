@@ -1,4 +1,6 @@
-Are you ready to take your Pokémon Go adventure to the next level? Look no further! At Hellabyte.me, we've got the perfect solution for you: Pre-rooted Android devices that are all set to GPS spoof in Pokémon Go.
+<h1> 🚀 Welcome to Hellabyte! </h1>
+
+Are you ready to take your Pokémon Go adventure to the next level? Look no further! At Hellabyte, we've got the perfect solution for you: Pre-rooted Android devices that are all set to GPS spoof in Pokémon Go.
 
 ### Why Choose Us?
 
@@ -35,19 +37,13 @@ Join our thriving community of gamers on our Discord channel. Connect with fello
 Rest assured, we take your privacy and security seriously. Your data and devices are in safe hands during the rooting process.
 
 #### **Payment Options 💳**
-We accept various payment methods and offer flexible installment plans. Bulk purchase discounts are available for serious trainers.
+We accept various payment methods.
 
 #### **Shipping and Returns 📬**
 Our devices are shipped promptly with estimated delivery times. Learn more about our return policy on our website.
 
 #### **Customization Options 🎨**
 Want additional apps or specific customizations? Let us know, and we'll tailor your device to your preferences.
-
-#### **Educational Resources 📘**
-Explore our guides and tutorials to make the most of your pre-rooted device.
-
-#### **Referral Program 🔄**
-Join our referral program and earn rewards for every friend you refer to us.
 
 #### **Stay Connected 🌐**
 Follow us on social media for updates, tips, and special promotions.
@@ -64,10 +60,6 @@ Don't wait any longer to embark on your Pokémon Go journey with the freedom to 
 Don't wait any longer to embark on your Pokémon Go journey with the freedom to spoof your location. Our pre-rooted Android devices are ready to help you become the ultimate Pokémon Master.
 
 Join our community of gamers today and unlock the world of Pokémon Go like never before. Contact us to learn more about our available devices and pricing. Let the adventure begin!
-
-📧 Contact us at [Your Email Address]
-📞 Call us at [Your Phone Number]
-🌐 Visit our website at [Your Website URL]
 
 #### **Disclaimer 📜**
 
