@@ -1,4 +1,4 @@
-# 🚀 Hellabyte.me 🚀
+# 🚀 Hellabyte.me
 
 Are you ready to take your Pokémon Go adventure to the next level? Look no further! At Hellabyte.me, we've got the perfect solution for you: Pre-rooted Android devices that are all set to GPS spoof in Pokémon Go.
 
